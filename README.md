@@ -1,1 +1,0 @@
-# muzebelediyees3cck
